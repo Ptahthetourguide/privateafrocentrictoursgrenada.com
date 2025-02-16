@@ -14,7 +14,7 @@ Our ancestors have left evidence of their presence locally and regionally for us
 
 Follow in the footsteps of our forebears, from their arrival to their lives on the plantations and beyond.
 
-##### Cocoa Tea
+##### Cocoa Tea 
 
 **From the Plantation to the rich Flavours of the Cocoa plant**
 
